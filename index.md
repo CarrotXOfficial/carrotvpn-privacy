@@ -67,7 +67,7 @@ Policy may be updated anytime. Changes will be posted here.
 
 ## 7. Contact
 
-Email: [support@carrotvpn.com](mailto:support@carrotvpn.com)
+Email: [sultangoju@gmail.com](mailto:sultangoju@gmail.com)
 
 ---
 
